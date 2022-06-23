@@ -1,0 +1,1 @@
+La verdad me esmere mucho en el diseno y me quede con poco tiempo para hacer las medias queries, se que podrian haberse echo mejor. 
